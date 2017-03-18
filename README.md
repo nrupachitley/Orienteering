@@ -1,1 +1,1 @@
-# Orienteering-
+# Orienteering
